@@ -9,4 +9,6 @@ https://codenvy.com
 
 https://betterexplained.com/articles/understanding-the-monty-hall-problem
 
+https://m.youtube.com/watch?v=DlphpbxNTLw
+
 link do prezentacji:
