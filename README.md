@@ -12,3 +12,5 @@ https://betterexplained.com/articles/understanding-the-monty-hall-problem
 https://m.youtube.com/watch?v=DlphpbxNTLw
 
 link do prezentacji:
+
+https://1drv.ms/p/s!Ahs3S-rQ-8wHgVrV8JyLZAjivbAz?e=j8nQrr
